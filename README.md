@@ -1,0 +1,1 @@
+# pengolahan-citra-ti_2c
